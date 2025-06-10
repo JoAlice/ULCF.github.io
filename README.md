@@ -1,4 +1,4 @@
-Urban Life Charity Foundation
+Urban Life Charity Foundation,
 ULCF is a charity foundation initated in 2023 and got registered in 2024
 
 ABOUT
